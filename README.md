@@ -1,2 +1,1 @@
-## Hi Im Diyor Mahmudov <img src="<img width="480" height="476" alt="image" src="https://github.com/user-attachments/assets/9ab4df58-6dff-40e4-b1ef-77f7d3cc7153" />
-">
+## Hi Im Diyor Mahmudov <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZWMxa3IxNTRobmpsbnNyZm4ydHVlaTJyZG1jMGp3a3gyczJtN3o1eiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l1IB22SuYeEMMPTguL/giphy.gif" width= "30px">
