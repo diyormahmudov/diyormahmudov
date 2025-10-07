@@ -1,1 +1,1 @@
-## Hi Im Diyor Mahmudov <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZWMxa3IxNTRobmpsbnNyZm4ydHVlaTJyZG1jMGp3a3gyczJtN3o1eiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l1IB22SuYeEMMPTguL/giphy.gif" width= "30px">
+## Hi Im Diyor Mahmudov <img src="https://media.giphy.com/media/hvRJCFzcasrR4ia7z/giphy.gif" width= "30px">
