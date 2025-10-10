@@ -8,3 +8,4 @@ I work remotely and like to travel a lot.
 ### Languages and tools I work with:
 
 <code><img src="https://cdn.freebiesupply.com/logos/large/2x/html5-2-logo-png-transparent.png" width= "50px"><code/>
+<code><img src="https://cdn.freebiesupply.com/logos/large/2x/html5-2-logo-png-transparent.png" width= "50px"><code/>
